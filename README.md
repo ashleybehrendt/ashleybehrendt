@@ -9,7 +9,5 @@
   * Golfing with my mom!
 ### 🤔 I’m interested in learning more about: 
  * The practical applications of GitHub to be applied to my classes in the future and in any future jobs. 
-### 📫 How to reach me: akb01@iastate.edu
 ### 😄 Pronouns: She/Her
 ### ⚡ Fun fact: I know how to juggle! 
-
